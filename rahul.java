@@ -9,3 +9,5 @@ the congress main 3 targets
 1. more youth into the congress
 2. retire old guard
 3. aggresively defend the spirit of secularism
+
+        Thats the final plan and prepare for the battle 2024......lets fight together and win this crusial battle. JAI HIND JAI CONGRESS
